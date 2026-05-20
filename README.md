@@ -1,2 +1,0 @@
-#Mainter: Abdul Sattar
-
